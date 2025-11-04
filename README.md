@@ -1,6 +1,12 @@
   <p align="center">
-ᴡᴏᴡɪᴇᴇ.. ᴛʜɪꜱ ɢɪᴛʜᴜʙ ɪꜱ ᴍʏ ᴍᴀɪɴ ᴀɴᴅ.. ʟɪɴᴋꜱ ᴀɴᴅ.. ᴜᴍ.. ɪ ᴜꜱᴇ ᴛʜɪꜱ ᴀᴛ ᴛʜᴇ ᴍᴄʏᴛ ꜱᴇᴄᴛɪᴏɴ ᴛʜᴇ ᴍᴏꜱᴛ.. !
+ᴡᴏᴡɪᴇᴇ.. ᴛʜɪꜱ ɢɪᴛʜᴜʙ ɪꜱ ᴍʏ ᴍᴀɪɴ ᴀɴᴅ.. ʟɪɴᴋꜱ ᴀɴᴅ.. ᴜᴍ ʏᴇᴀʜ .. ɪɴᴛ ᴘʟꜱ!
   </p>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31xh24cqngucm4mxcr2ztzzh7lqy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true">
+  </a>
+</p>
 
 <p align="center">
   <b>ʟɪɴᴋꜱ ; </b><br>
