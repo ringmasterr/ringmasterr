@@ -13,7 +13,8 @@
   <a href="https://xinz.atabook.org">ᴀᴛᴀʙᴏᴏᴋ</a> -
   <a href="https://en.pronouns.page/@xinz">ᴘʀɴꜱ.ᴘɢ </a> -
   <a href="https://rentry.co/sincerelyxin">ʀᴇɴᴛʀʏ</a> -
-  <a href="https://ccrows.straw.page">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a>
+  <a href="https://ccrows.straw.page">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
+  <a href ="https://guns.lol/commitedsin">ɢᴜɴꜱ.ʟᴏʟ</a>
   <br><br>
 <!---
 bleedingstars/bleedingstars is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
