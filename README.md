@@ -12,7 +12,7 @@
   <b>ʟɪɴᴋꜱ ; </b><br>
   <a href="https://xinz.atabook.org">ᴀᴛᴀʙᴏᴏᴋ</a> -
   <a href="https://en.pronouns.page/@xinz">ᴘʀɴꜱ.ᴘɢ </a> -
-  <a href="https://rentry.co/sinsforgotten">ʀᴇɴᴛʀʏ</a> -
+  <a href="https://rentry.co/sincerelyxin">ʀᴇɴᴛʀʏ</a> -
   <a href="https://ccrows.straw.page">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a>
   <br><br>
 <!---
