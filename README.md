@@ -4,7 +4,7 @@
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31xh24cqngucm4mxcr2ztzzh7lqy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31xh24cqngucm4mxcr2ztzzh7lqy&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true"">
   </a>
 </p>
 
@@ -15,7 +15,7 @@
   <a href="https://rentry.co/sincerelyxin">ʀᴇɴᴛʀʏ</a> -
   <a href="https://ccrows.straw.page">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
   <a href ="https://guns.lol/commitedsin">ɢᴜɴꜱ.ʟᴏʟ</a>
-  <br><br>
+  <br><br>  
 <!---
 bleedingstars/bleedingstars is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
