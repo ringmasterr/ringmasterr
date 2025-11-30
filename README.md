@@ -1,6 +1,14 @@
+<p align ="center">
+┏━━━━✦❘༻༺❘✦━━━━━━━━━━━━━━━━━━━━━━━━━━━━━┓
+ </p>
+  
   <p align="center">
-ᴡᴏᴡɪᴇᴇ.. ᴛʜɪꜱ ɢɪᴛʜᴜʙ ɪꜱ ᴍʏ ᴍᴀɪɴ ᴀɴᴅ.. ʟɪɴᴋꜱ ᴀɴᴅ.. ᴜᴍ ʏᴇᴀʜ .. ɪɴᴛ ᴘʟꜱ!
+.ೃ࿐ ᴡᴏᴡɪᴇᴇ.. ᴛʜɪꜱ ɢɪᴛʜᴜʙ ɪꜱ ᴍʏ ᴍᴀɪɴ ᴀɴᴅ.. ʟɪɴᴋꜱ ᴀɴᴅ.. ᴜᴍ ʏᴇᴀʜ .. ɪɴᴛ ᴘʟꜱ! ☄. *. ⋆
   </p>
+
+<p align ="center">
+♡.﹀﹀﹀﹀.♡
+</p>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -8,14 +16,27 @@
   </a>
 </p>
 
+<p align ="center">
+0:00 -|——————————————————— -2:17
+ </p>
+
 <p align="center">
-  <b>ʟɪɴᴋꜱ ; </b><br>
+  <b>ೃ⁀➷ ʟɪɴᴋꜱ ; </b><br>
   <a href="https://xinz.atabook.org">ᴀᴛᴀʙᴏᴏᴋ</a> -
   <a href="https://en.pronouns.page/@xinz">ᴘʀɴꜱ.ᴘɢ </a> -
   <a href="https://rentry.co/sincerelyxin">ʀᴇɴᴛʀʏ</a> -
   <a href="https://ccrows.straw.page">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
   <a href ="https://guns.lol/commitedsin">ɢᴜɴꜱ.ʟᴏʟ</a>
   <br><br>  
+
+<p align ="center">
+ ┗━━━━━━━━━━━━━━━━━━━━━━━━━━━━━✦❘༻༺❘✦━━━━┛
+ </p>
+
+  <p align="center">
+    <b> SIGN THE CHRISTMAS TREE [please .] *ೃ༄ </b><br>
+    <a href="https://colormytree.me/2025/01KB8M5PB8GQ0C9ESMCM1G47WS">tree</a>
+    <br><br>
 <!---
 bleedingstars/bleedingstars is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
