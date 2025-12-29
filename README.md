@@ -31,12 +31,6 @@
 
 <p align ="center">
  ┗━━━━━━━━━━━━━━━━━━━━━━━━━━━━━✦❘༻༺❘✦━━━━┛
- </p>
-
-  <p align="center">
-    <b> SIGN THE CHRISTMAS TREE [please .] *ೃ༄ </b><br>
-    <a href="https://colormytree.me/2025/01KB8M5PB8GQ0C9ESMCM1G47WS">tree</a>
-    <br><br>
 <!---
 bleedingstars/bleedingstars is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
