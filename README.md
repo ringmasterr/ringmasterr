@@ -30,7 +30,17 @@
   <br><br>  
 
 <p align ="center">
+♡.﹀﹀﹀﹀.♡
+</p>
+ 
+<p align="center">
+  <b> ♡ ʜɪ ᴄʀᴜꜱʜ / ʀᴏᴛ  <3 ; </b><br>
+ <a href="https://github.com/Azresash">ᴡᴇ ᴊᴜꜱᴛ ɢᴏᴛ ᴍᴀʀʀɪᴇᴅ [ᴘʟᴀᴛ]</a> 
+</p>
+   
+<p align ="center">
  ┗━━━━━━━━━━━━━━━━━━━━━━━━━━━━━✦❘༻༺❘✦━━━━┛
+</p>
 <!---
 bleedingstars/bleedingstars is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
