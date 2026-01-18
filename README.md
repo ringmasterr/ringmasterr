@@ -2,8 +2,7 @@
 ════════════════════════════════════════════════════════════════════════════
 </p>
 
-<img align="left" width="500" height="700" alt="image"  src="https://github.com/user-attachments/assets/6deeedc6-425d-41ec-977d-1abe37d54bcb" />
-
+<img align="left" width="500" height="700" alt="image" src="https://github.com/user-attachments/assets/ff010d38-7dcc-4af2-b3f5-2f3f33b07e67" />
 <p align="center">
 ----------♡----------
 </p>
@@ -41,6 +40,9 @@
 --------------------˗ˏˋ ꒰ ✉︎ ꒱ ˎˊ˗--------------------
 </p>
 <p align="center">
+ɪ ʟᴏᴠᴇᴇᴇᴇ ᴍʏ ꜰʀɪᴇɴᴅꜱ ᴄʜᴇᴄᴋ ᴛʜᴇᴍ ᴏᴜᴛ ɪꜰ ᴜ ᴄᴀɴ ᴘʟꜱʟꜱ
+</p>
+   <p align="center">
 ᴍʏ ᴍᴀɪɴ ʟɪɴᴋꜱ , ᴄʜᴇᴄᴋ ᴜɴᴅᴇʀ ʙɪᴏ 4 ᴍᴏʀᴇ ♡
 </p>
 <p align="center">
