@@ -5,7 +5,7 @@
 <img align="left" width="500" height="700" alt="image"  src="https://github.com/user-attachments/assets/6deeedc6-425d-41ec-977d-1abe37d54bcb" />
 
 <p align="center">
-➽──────────────⪼
+----------♡----------
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -49,7 +49,7 @@
   <a href="https://en.pronouns.page/@xinz">ᴘʀɴꜱ.ᴘɢ </a>】
 </p>
 <p align="center">
-➽──────────────⪼
+----------♡----------
 </p>
 
 <p align="center">
