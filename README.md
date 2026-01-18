@@ -48,6 +48,9 @@ text
 <p align="center">
 text
 </p>
+<p align="center">
+text
+</p>
 
 <p align="center">
   <b> ♡ ʜɪ ᴄʀᴜꜱʜ / ʀᴏᴛ  <3 ; </b><br>
