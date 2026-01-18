@@ -10,31 +10,25 @@
   </a>
 </p>
 <p align="center">
-image cr : <a href="https://x.com/milkilattes">@milkilattes on x </a>
+ɪᴍᴀɢᴇ ᴄʀ : <a href="https://x.com/milkilattes"> @ᴍɪʟᴋɪʟᴀᴛᴛᴇꜱ ᴏɴ x </a>
 </p>
 <p align="center">
-hi world..?
+➽──────────────⪼‎
 </p>
 <p align="center">
-PLEASE MY MOM IS KIND OF HOMELESS
+​🇨​ ​🇽​ ​🇭​ ꜰʀᴇᴇʟʏ , ɪ ꜱᴡɪᴛᴄʜ ᴛᴀʙꜱ ᴏᴄᴄᴀꜱɪᴏɴᴀʟʟʏ
 </p>
 <p align="center">
-hi
+ᴅᴏ ɴᴏᴛ ᴄᴏᴘʏ ᴏʀ ᴛᴀᴋᴇ ɪɴꜱᴘᴏ ᴏꜰꜰ ꜱᴋɪɴꜱ ᴡɪᴛʜᴏᴜᴛ ᴘᴇʀᴍɪꜱꜱɪᴏɴ 
 </p>
 <p align="center">
-meow
+ɪꜰ ɪ ᴅɪꜱᴄᴏɴɴᴇᴄᴛ , ɪ ᴡᴏɴ'ᴛ ɢᴇᴛ ᴜʀ ʟᴀꜱᴛ ᴍᴇꜱꜱᴀɢᴇ , ᴘʟᴇᴀꜱᴇ ꜱᴇɴᴅ ɪᴛ ᴀɢᴀɪɴ !
 </p>
 <p align="center">
-DOES THIS WORK PLASE
+ʀᴇᴀʟʟʏ ᴛᴀʟᴋᴀᴛɪᴠᴇ ᴡɪᴛʜ ꜰʀɪᴇɴᴅꜱ , ᴅᴏɴ'ᴛ ʙᴇ ꜱᴄᴀʀᴇᴅ ᴛᴏ ᴛᴀʟᴋ ᴡɪᴛʜ ᴜꜱ
 </p>
 <p align="center">
-Ok. respsitory is WIP and WORKING
-</p>
-<p align="center">
-text
-</p>
-<p align="center">
-text
+➽──────────────⪼
 </p>
 <p align="center">
 text
