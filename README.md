@@ -35,7 +35,7 @@
  
 <p align="center">
   <b> ♡ ʜɪ ᴄʀᴜꜱʜ / ʀᴏᴛ  <3 ; </b><br>
- ⌒ <a href="https://github.com/Azresash">ᴛʜᴇ ꜱᴄʏᴛʜᴇ ᴛᴏ ᴍʏ ꜱᴜʙꜱᴘᴀᴄᴇ</a> ₊˚  ᛝ 
+ ⌒ <a href="https://github.com/Azresash">ᴛʜᴇ ᴡɪꜰɪᴇꜱ ᴛᴏ ᴍʏ ᴘᴀʀʀᴏᴛ<3 </a> ₊˚  ᛝ 
 </p>
    
 <p align ="center">
