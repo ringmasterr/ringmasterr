@@ -2,7 +2,7 @@
 ════════════════════════════════════════════════════════════════════════════
 </p>
 
-<img align="left" width="450" height="675" alt="image" src="https://github.com/user-attachments/assets/136b0895-7b18-4201-b731-7bd103dfbe83" />
+<img align="left" width="450" height="650" alt="image" src="https://github.com/user-attachments/assets/136b0895-7b18-4201-b731-7bd103dfbe83" />
 " />
 <p align="center">
 ----------♡----------
