@@ -2,8 +2,7 @@
 ════════════════════════════════════════════════════════════════════════════
 </p>
 
-<img align="left" width="450" height="650" alt="image" src="https://github.com/user-attachments/assets/136b0895-7b18-4201-b731-7bd103dfbe83" />
-
+<img align="left" width="500" height="800" alt="image" src="https://github.com/user-attachments/assets/68204202-9226-40ce-8258-b793d2e972fe" />
 <p align="center">
 ----------♡----------
 </p>
@@ -13,7 +12,7 @@
   </a>
 </p>
 <p align="center">
-ɪᴍᴀɢᴇ ᴄʀ : <a href="https://x.com/The_bestgamer_4"> @ᴛʜᴇ_ʙᴇꜱᴛɢᴀᴍᴇʀ_4 ᴏɴ x </a>
+ɪᴍᴀɢᴇ ᴄʀ : <a href="https://x.com/fishymlem"> @​🇫​​🇮​​🇸​​🇭​​🇾​​🇲​​🇱​​🇪​​🇲​ ᴏɴ x </a>
 </p>
 <p align="center">
 --------------------˗ˏˋ ꒰ ✉︎ ꒱ ˎˊ˗--------------------‎
