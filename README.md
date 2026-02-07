@@ -3,7 +3,7 @@
 </p>
 
 <img align="left" width="450" height="650" alt="image" src="https://github.com/user-attachments/assets/136b0895-7b18-4201-b731-7bd103dfbe83" />
-" />
+
 <p align="center">
 ----------♡----------
 </p>
@@ -13,7 +13,7 @@
   </a>
 </p>
 <p align="center">
-ɪᴍᴀɢᴇ ᴄʀ : <a href="https://x.com/milkilattes"> @ᴍɪʟᴋɪʟᴀᴛᴛᴇꜱ ᴏɴ x </a>
+ɪᴍᴀɢᴇ ᴄʀ : <a href="https://x.com/The_bestgamer_4"> @ᴛʜᴇ_ʙᴇꜱᴛɢᴀᴍᴇʀ_4 ᴏɴ x </a>
 </p>
 <p align="center">
 --------------------˗ˏˋ ꒰ ✉︎ ꒱ ˎˊ˗--------------------‎
