@@ -2,7 +2,8 @@
 ════════════════════════════════════════════════════════════════════════════
 </p>
 
-<img align="left" width="500" height="700" alt="image" src="https://github.com/user-attachments/assets/ff010d38-7dcc-4af2-b3f5-2f3f33b07e67" />
+<img align="left" width="450" height="675" alt="image" src="https://github.com/user-attachments/assets/136b0895-7b18-4201-b731-7bd103dfbe83" />
+" />
 <p align="center">
 ----------♡----------
 </p>
@@ -34,7 +35,7 @@
 </p>
 <p align="center">
   <b> ♡ ʜɪ ᴄʀᴜꜱʜ / ʀᴏᴛ  <3 ; </b><br>
- ⌒ <a href="https://github.com/Azresash">ᴛʜᴇ ᴡɪꜰɪᴇꜱ ᴛᴏ ᴍʏ ᴘᴀʀʀᴏᴛ<3 </a> ₊˚  ᛝ 
+ ⌒ <a href="https://github.com/Azresash">ᴘᴇᴀᴋ ꜰʀɪᴇɴᴅ ɢᴜʏꜱ ᴘʟꜱʟꜱʟ ʟᴏᴏᴋ </a> ₊˚  ᛝ 
 </p>
    <p align="center">
 --------------------˗ˏˋ ꒰ ✉︎ ꒱ ˎˊ˗--------------------
