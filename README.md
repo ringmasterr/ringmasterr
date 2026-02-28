@@ -2,7 +2,7 @@
 ════════════════════════════════════════════════════════════════════════════
 </p>
 
-<img align="left" width="500" height="800" alt="image" src="https://github.com/user-attachments/assets/68204202-9226-40ce-8258-b793d2e972fe" />
+<img align="left" width="670" height="950" alt="image" src="https://github.com/user-attachments/assets/57a76b97-710f-4b44-b129-8eb1ace0114f" />
 <p align="center">
 ----------♡----------
 </p>
@@ -12,7 +12,7 @@
   </a>
 </p>
 <p align="center">
-ɪᴍᴀɢᴇ ᴄʀ : <a href="https://x.com/fishymlem"> @​🇫​​🇮​​🇸​​🇭​​🇾​​🇲​​🇱​​🇪​​🇲​ ᴏɴ x </a>
+ɪᴍᴀɢᴇ ᴄʀ : <a href="https://x.com/fishymlem"> @​ꜱᴜꜱ_ᴋᴀɪᴛʟʏɴ ᴏɴ x </a>
 </p>
 <p align="center">
 --------------------˗ˏˋ ꒰ ✉︎ ꒱ ˎˊ˗--------------------‎
