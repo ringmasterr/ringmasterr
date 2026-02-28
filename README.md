@@ -34,7 +34,7 @@
 </p>
 <p align="center">
   <b> ♡ ʜɪ ᴄʀᴜꜱʜ / ʀᴏᴛ  <3 ; </b><br>
- ⌒ <a href="https://github.com/Azresash">ᴘᴇᴀᴋ ꜰʀɪᴇɴᴅ ɢᴜʏꜱ ᴘʟꜱʟꜱʟ ʟᴏᴏᴋ </a> ₊˚  ᛝ 
+ ⌒ <a href="https://github.com/Azresash">ɪᴍ ꜱᴏʀʀʏ ɪ ᴄᴏᴜʟᴅɴ'ᴛ ꜱᴀᴠᴇ ᴜ. 2/23/26 . </a> ₊˚  ᛝ 
 </p>
    <p align="center">
 --------------------˗ˏˋ ꒰ ✉︎ ꒱ ˎˊ˗--------------------
